@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning smart contract
 - 💞️ I’m looking to collaborate on cardano community 
 - 📫 How to reach me bugdormary1@gmail.com 
-- 😄 Pronouns: she
+- 😄 Pronouns: Hardworking
 - ⚡ Fun fact: movies,dancing,music
 
 <!---
